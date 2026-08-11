@@ -1,1 +1,0 @@
-# Killercoda-linux-practise
